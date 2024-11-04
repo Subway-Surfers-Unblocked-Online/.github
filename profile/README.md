@@ -2,7 +2,7 @@
 
 Play Subway Surfers for free online! Run, dodge, and surf in this exciting endless runner game. Enjoy on PC or mobile with no download required.
 
-## [CLICK TO PLAY SPRUNKED!](https://subwaysurfersgame.online/)
+## [CLICK TO PLAY Subway-Sufers!](https://subwaysurfersgame.online/)
 
 ## [Play Subway Surfers Unblocked!](https://subwaysurfersgame.online/subway/subway-surfers-unblocked-online)
 
